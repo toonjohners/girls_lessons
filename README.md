@@ -1,7 +1,7 @@
-# <span style="color:red"> Sofia Stories</span>
+# Sofia Stories
 ## Chapter 1
 
-Sofia, Daddy and Georgia are sitting on the couch together on a lock down day
+Sofia, Daddy and Georgia are sitting on the couch together on a <span style="color:red">lock down day</span>
 
 
 
