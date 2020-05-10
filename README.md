@@ -17,4 +17,3 @@ wen sofia went to the toilt . her dad tuck the lapot because  he need it!
 
 ## chapter 3
 where is the lapot gone?! said sofia.
-
