@@ -16,4 +16,11 @@ she was writing her dads lapot.
 wen sofia went to the toilt . her dad tuck the lapot because  he need it!
 
 ## chapter 3
-where is the lapot gone?! said sofia.
+where is the lapot gone?! said sofia. 
+she looked everywhere but she count find it.
+
+## Chapter 4
+But there was one place that Sofia hasn't looked, the attic.
+then she was her dad had the lapot!
+then she told her dad the whoole story.
+the end.
